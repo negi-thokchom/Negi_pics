@@ -1,3 +1,16 @@
 # Negi_pics
 pictures for maps
 ![Kangla Map](https://user-images.githubusercontent.com/70145310/91080349-08158400-e663-11ea-9d2f-458c1e07ffcd.jpg)
+![Captain SJ Duncan,SDO Tamenglong](https://user-images.githubusercontent.com/70145310/91088777-39e11780-e670-11ea-864b-093f2ba1b364.jpg)
+![Gaidinliu Property](https://user-images.githubusercontent.com/70145310/91088809-47969d00-e670-11ea-947a-5ab8dd0a7c60.JPG)
+![Gaidinliu Bracelet](https://user-images.githubusercontent.com/70145310/91088816-4a918d80-e670-11ea-9bef-2a4a4f95b5e6.jpg)
+![Taking copies of the Gaidinliu collection on phone](https://user-images.githubusercontent.com/70145310/91088844-57ae7c80-e670-11ea-9d1d-4998bbb9f305.jpg)
+![Taking copies of the Gaidinliu collection](https://user-images.githubusercontent.com/70145310/91088852-5a10d680-e670-11ea-888b-9e36ebc2dea1.jpg)
+![Pitt Rivers Museum, Oxford England](https://user-images.githubusercontent.com/70145310/91088855-5b420380-e670-11ea-8a85-eb13a0ae9513.jpg)
+![Sample of cloth belonging to Gaidinliu](https://user-images.githubusercontent.com/70145310/91088868-6006b780-e670-11ea-87a0-aceff5549ae0.jpg)
+![Jadonang](https://user-images.githubusercontent.com/70145310/91089361-19658d00-e671-11ea-91fc-ddc03569540c.jpg)
+![Three Europeans at Jadonang's Temple](https://user-images.githubusercontent.com/70145310/91089470-38fcb580-e671-11ea-9f25-43a641170f7c.jpg)
+![The Gaidinliu Notebooks](https://user-images.githubusercontent.com/70145310/91089481-3c903c80-e671-11ea-93e0-b27715632086.JPG)
+![House of Haipou Jadonang](https://user-images.githubusercontent.com/70145310/91089613-6ba6ae00-e671-11ea-9741-228e9df9183b.jpg)
+![Jadonang and Gaidinliu Temple at Nungkao](https://user-images.githubusercontent.com/70145310/91089621-6ea19e80-e671-11ea-96cc-89f7052f0f01.jpg)
+![Gaidinliu](https://user-images.githubusercontent.com/70145310/91088747-2e8dec00-e670-11ea-8992-2d2df7b60296.JPG)
